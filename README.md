@@ -1,1 +1,1 @@
-# State-Sales-Strategy-for-2018-Heatmap-
+# State-Sales-Strategy-for-2018
